@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=DAE-H0&label=◯&color=304B52)
 
 <p align="center"> 
-<img src="B13D37BE-405A-4D79-8051-EB98565B87A3.png">
+<img src="975B99E4-8E23-4233-A15C-8B4341447917.gif">
 
 <p align="center"> 
 <tt><i> ^_^ </i></tt>
