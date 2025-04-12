@@ -1,5 +1,5 @@
 
-　<p align="center">![](https://komarev.com/ghpvc/?username=DAE-H0&label=⚰️&color=957569)</p>
+　<p align="center">![](https://komarev.com/ghpvc/?username=DAE-H0&label=⚰️&color=ad887b)</p>
 
 <p align="center"> 
 <img src="E1583748-06CF-4DAB-B61B-1EB3683E1B4B-min.png">
