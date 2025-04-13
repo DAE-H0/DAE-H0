@@ -1,12 +1,14 @@
 
-　<p align="center">![](https://komarev.com/ghpvc/?username=DAE-H0&label=⚰️&color=b49082)</p>
+　<p align="center">![](https://komarev.com/ghpvc/?username=DAE-H0&label=🦊&color=3e231e)</p>
 
 <p align="center"> 
-<img src="E1583748-06CF-4DAB-B61B-1EB3683E1B4B-min.png">
+<img src="3F03B6D9-43D7-4D91-9332-6964335D22D1-min.png">
 
 <p align="center"> 
 <tt><i> ^_^ </i></tt>
 <p align="center"> 
-<i>" why can't you just let me die? "</i>
+<i>" 죽음 따윈 상관없지, 오직 나를 위한 이 향기 . "</i>
+
+<i>" I don't care 'bout death, This fragrance is only for me . "</i>
 <p align="center"> 
 <tt><i>...</i></tt>
